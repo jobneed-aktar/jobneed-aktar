@@ -1,7 +1,6 @@
-(https://media.licdn.com/dms/image/D4E16AQEtv2mj_JwIlQ/profile-displaybackgroundimage-shrink_350_1400/0/1722174512840?e=1727913600&v=beta&t=1dKUNLEan1Elt0nXfa-S_GRLl-stdSa19_pYGssnh-k)
+![Senior Full Stack Developer with Expertise in End-to-End Application Design and Deployment](https://media.licdn.com/dms/image/D4E16AQEtv2mj_JwIlQ/profile-displaybackgroundimage-shrink_350_1400/0/1722174512840?e=1727913600&v=beta&t=1dKUNLEan1Elt0nXfa-S_GRLl-stdSa19_pYGssnh-k)
 ### Hi there 👋, Md Aktaruzzaman A Full Stack Web Development Specialist 
 ## Senior Full Stack Developer with Expertise in End-to-End Application Design and Deployment
-![Senior Full Stack Developer with Expertise in End-to-End Application Design and Deployment]
 
 WordPress Expert | WordPress Developer | Wix Developer | Shopify Expert | Custom CMS Developer | Landing Page Designer | SEO Specialist | CMS Developer | Speed Optimization Expert | WordPress Designer | Custom Website Development Specialist
 
